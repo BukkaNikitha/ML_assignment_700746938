@@ -11,7 +11,7 @@ Assignments :
 
 Assignment 1 uploaded to Github
 
-Google Drive Link for Video and Screenshots:  https://drive.google.com/file/d/1eaJsnmb1bayZkl0OBroH8lDVxOwsaS8C/view?usp=share_link 
+Google Drive Link for Video and Screenshots:  https://drive.google.com/drive/folders/1r8BqY5yibVr2xFXawYWWzVk9DxQZ5vdH?usp=share_link 
 
 Assignment 2 uploaded to Github
 
